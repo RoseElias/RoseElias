@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RoseElias
+- 👀 I’m interested in Computers
+- 🌱 I’m currently learning Nothing
+- 📫 How to reach me Discord: BaumstammGHG#6826
